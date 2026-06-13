@@ -1,3 +1,6 @@
+### DISCLAMER This project may not be copied, modified, redistributed, or claimed without permission. Discord: fake181
+
+
 # 🇸🇦 العربية
 
 ## 📌 الوصف
